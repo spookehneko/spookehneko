@@ -15,7 +15,7 @@
 
 - 🤝 I’m looking for help with **Coding games**
 
-- 📫 How to reach me **._sillyykittyy_.**
+- 📫 How to reach me ```._sillyykittyy_.``` **on discord**
 
 - ⚡ Fun fact **I hate myself alot :3**
 
